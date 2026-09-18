@@ -38,7 +38,7 @@
   <summary> ${\textsf{\color{#f7b1b7}     ⁝⁝⁝ }}$ ${\textsf{\color{#fff8f4}  f/o list. }}$ </summary><br>
   hypersharing for all!
   <br>
-  <img src="https://64.media.tumblr.com/d028f7b0b542117ab0dbc60828a3f293/eabf10a0b9396262-a9/s250x400/09526841d18ffb30a39a7dc79097ae0dcd5e37d6.pnj" alt="Alt Text" width="100" /> <img src="https://64.media.tumblr.com/4347f5e8b9d17bd4cc8b8edad02e9464/eabf10a0b9396262-6b/s250x400/3545fe38a22fa82b1fcd0c8013ca900a3b80a081.pnj" alt="Alt Text" width="100" /> <img src="https://64.media.tumblr.com/37695346eb579fb5a8902993dbcdfa56/d6db5f7b588caeb4-c1/s100x200/70eaf10ac1a7148c4d16fc315b2db61214357894.gifv" alt="Alt Text" width="100" />
+  <img src="https://64.media.tumblr.com/d028f7b0b542117ab0dbc60828a3f293/eabf10a0b9396262-a9/s250x400/09526841d18ffb30a39a7dc79097ae0dcd5e37d6.pnj" alt="Alt Text" width="100" /> <img src="https://64.media.tumblr.com/37695346eb579fb5a8902993dbcdfa56/d6db5f7b588caeb4-c1/s100x200/70eaf10ac1a7148c4d16fc315b2db61214357894.gifv" alt="Alt Text" width="100" />
  </details>
 
 
