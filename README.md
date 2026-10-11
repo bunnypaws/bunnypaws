@@ -3,13 +3,13 @@
 
 
  <p align="center">
-  <img src="https://64.media.tumblr.com/65da69575a99987f64e11209671bebe2/6eabe8cd53a3e20b-8f/s2048x3072/82eb61f099bc7798d684cdb2c404eae67ab5484c.gifv" alt="Alt Text" width="700" />
+  <img src="https://64.media.tumblr.com/8ef14d3d10d3971500b1a099f2d9ee1d/bfefa2315ba75cb1-70/s2048x3072/f4d9fa0a1dc4793770d6ed7a89f6e4e2568224c2.pnj" alt="Alt Text" width="700" />
 </p>
 
-<img src=https://64.media.tumblr.com/5294f5f8b127207bee3dd5b15aa28efd/5b6dabed1e151c9b-cd/s2048x3072/861a48ac11313f0d3ad791c16c723c2e29b6e8b1.pnj width="500" align="left"> 
+<img src="https://64.media.tumblr.com/0ee74e64dd724e23407c449339f96c6e/bfefa2315ba75cb1-66/s1280x1920/0b1785ba51b0ff17e09fd692ffc3fc1f7e9a4d90.gifv" width="500" align="left"> 
 
 
-   ${\color{#fff8f4}\text{ Vinestaff }}$ ${\color{#f7b1b7}\text{ graphic }}$  ${\color{#3e393c}\text{ by }}$  ${\textsf{\color{#dab872} @thelittledykes on tumblr}}$ 
+   ${\color{#fff8f4}\text{ Vinestaff }}$ ${\color{#f7b1b7}\text{ graphic }}$  ${\color{#3e393c}\text{ by }}$  ${\textsf{\color{#dab872} @m4ceattack on tumblr}}$ 
 
 
 <img src="https://komarev.com/ghpvc/?username=aspiicee&color=f96f81&style=plastic&label=VINE+FLOWERS" alt="profile view counter" align="center">
@@ -42,5 +42,5 @@
 
 
  <p align="center">
-  <img src="https://64.media.tumblr.com/65da69575a99987f64e11209671bebe2/6eabe8cd53a3e20b-8f/s2048x3072/82eb61f099bc7798d684cdb2c404eae67ab5484c.gifv" alt="Alt Text" width="700" />
+  <img src="https://64.media.tumblr.com/4b783f315ce263298eed1a2783cca3f9/bfefa2315ba75cb1-83/s2048x3072/8e19ff36abd7411a7dc7318db08d8357052c84a3.pnj" alt="Alt Text" width="700" />
 </p>
