@@ -17,3 +17,16 @@
 wip
 
 </br>
+
+
+ <details>
+  <summary> ${\textsf{\color{#235267}     ⁝⁝⁝ }}$ ${\textsf{\color{#dab872}  extra socials. }}$ </summary><br>
+  wip <3
+  <br>
+ </details>
+
+
+
+
+
+
