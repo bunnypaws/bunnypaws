@@ -22,19 +22,6 @@
 ‎‎
 
 
+
 </br>
 
-
- <details>
-  <summary> ${\textsf{\color{#235267}     ⁝⁝⁝ }}$ ${\textsf{\color{#dab872}  extra socials. }}$ </summary><br>
-  wip <3
-  <br>
- </details>
-
-
- <details>
-  <summary> ${\textsf{\color{#235267}     ⁝⁝⁝ }}$ ${\textsf{\color{#fff8f4}  f/o list. }}$ </summary><br>
-  hypersharing for all!
-  <br>
-  <img src="https://64.media.tumblr.com/d028f7b0b542117ab0dbc60828a3f293/eabf10a0b9396262-a9/s250x400/09526841d18ffb30a39a7dc79097ae0dcd5e37d6.pnj" alt="Alt Text" width="100" /> <img src="https://64.media.tumblr.com/37695346eb579fb5a8902993dbcdfa56/d6db5f7b588caeb4-c1/s100x200/70eaf10ac1a7148c4d16fc315b2db61214357894.gifv" alt="Alt Text" width="100" />
- </details>
