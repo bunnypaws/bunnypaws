@@ -1,5 +1,7 @@
 
+
 <div align="center">
+
 
 
 <img src=https://64.media.tumblr.com/55ed359560bec0871fa966fd97a1ff27/1f3b750f6efb887d-8b/s1280x1920/e9b881e38a4b8d9cb5b00aad22e13206cef79dc8.pnj width="500" align="left"> 
@@ -14,8 +16,12 @@
 
 
 
-
 <img src=https://64.media.tumblr.com/70f5916b0b3723348511bc9f910319fc/bfefa2315ba75cb1-f5/s1280x1920/930d787359ef3fe4d5f37f2e63fc33bef1d14f99.pnj width="190" align="center"> 
+
+
+
+
+
 
   <table>
     <tr>
