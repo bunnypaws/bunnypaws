@@ -6,7 +6,7 @@
 
 
 
-   ${\color{#fff8f4}\text{ Vinestaff }}$ ${\color{#235267}\text{ graphic }}$  ${\color{#1f2b46}\text{ by }}$  ${\textsf{\color{#dab872} @m4ceattack on tumblr}}$ 
+   ${\color{#fff8f4}\text{ so4 }}$ ${\color{#235267}\text{ graphic }}$  ${\color{#1f2b46}\text{ by }}$  ${\textsf{\color{#dab872} @m4ceattack on tumblr}}$ 
 
 
 <img src="https://komarev.com/ghpvc/?username=aspiicee&color=235267&style=plastic&label=S04+CORES" alt="profile view counter" align="center">
