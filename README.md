@@ -11,11 +11,6 @@
    ${\color{#fff8f4}\text{ so4 }}$ ${\color{#235267}\text{ graphic }}$  ${\color{#1f2b46}\text{ by }}$  ${\textsf{\color{#dab872} @m4ceattack on tumblr}}$ 
 
 
-<img src="https://komarev.com/ghpvc/?username=aspiicee&color=235267&style=plastic&label=S04+CORES" alt="profile view counter" align="center">
-
-
-
-
 <img src=https://64.media.tumblr.com/70f5916b0b3723348511bc9f910319fc/bfefa2315ba75cb1-f5/s1280x1920/930d787359ef3fe4d5f37f2e63fc33bef1d14f99.pnj width="190" align="center"> 
 
 
