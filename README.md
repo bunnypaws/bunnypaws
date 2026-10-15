@@ -21,7 +21,7 @@ ${\color{#fff8f4}\text{ fellpapyrus }}$ ${\color{#c21c1c}\text{ graphic }}$  ${\
       <th>
      papyrus　killer　kimmu 　 　 　they　hym　he
         <br>
-    　　  infp so4　　autistic + osdd 1b
+    　　  infp so4　　autistic + suspected osdd 1b
         ㅤ<br>
       </th>
     </table>
