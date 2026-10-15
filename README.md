@@ -19,9 +19,9 @@ ${\color{#fff8f4}\text{ fellpapyrus }}$ ${\color{#c21c1c}\text{ graphic }}$  ${\
 ㅤ<table border="0" align="left" style="margin-bottom 20" style="margin-right 2">
     <tr align="left"></tr>
       <th>
-     puzzle　dusty　kim 　 　 　they hym
+     papyrus　killer　kimmu 　 　 　they　hym　he
         <br>
-    　　  infp so4　　autism + osdd <br>
+    　　  infp so4　　autism + osdd
         ㅤ<br>
       </th>
     </table>
@@ -40,7 +40,7 @@ ${\color{#fff8f4}\text{ fellpapyrus }}$ ${\color{#c21c1c}\text{ graphic }}$  ${\
       <th>
      block　freely 　 　 　basic dni
         <br>
-           i　have　haphephobia　　idk　uh　 <br>
+           i　have　haphephobia　
         ㅤ<br>
       </th>
     </table>
