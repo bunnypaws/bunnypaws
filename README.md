@@ -48,6 +48,14 @@ ${\color{#fff8f4}\text{ fellpapyrus }}$ ${\color{#c21c1c}\text{ graphic }}$  ${\
      </br>
 
 
-</br>
+<img src=https://64.media.tumblr.com/f8013c65ba8f6cd3ec875ecbaab45af9/b3ee59493ffda642-ca/s250x400/77ad1c558c690e37c3f7f25685a4f21967619de8.pnj width="150" align="left"> 
 
+ </br>
 
+<img src=https://64.media.tumblr.com/1ad56d8a8c2fb0edb289a2c71ad07796/b3ee59493ffda642-d8/s250x400/e45a22a6f5188ceee4ee4cdb51190f3e7266bd6b.pnj width="150" align="left"> 
+
+ </br>
+
+<img src=https://64.media.tumblr.com/fff2c14d5ff07d8b7a61873ecc3ccfad/b3ee59493ffda642-c9/s250x400/4def0e267e461b5b8e6ef70382eae1095b3c2c2e.pnj width="150" align="left"> 
+
+ </br>
