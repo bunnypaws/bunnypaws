@@ -11,7 +11,7 @@ ${\color{#fff8f4}\text{ fellpapyrus }}$ ${\color{#c21c1c}\text{ graphic }}$  ${\
 
  ✦    
  
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Playfair&weight=900&size=25&duration=4980&pause=1000&color=c21c1c&width=435&lines=despite+everything+,+it's+still+you+.+right+?)](https://git.io/typing-svg
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Playfair&weight=900&size=25&duration=4980&pause=1000&color=c21c1c&width=435&lines=despite+everything+,+it's+still+you+.+right+?)](https://git.io/typing-svg)
 
 
 <img src=https://64.media.tumblr.com/dba840dae1e4f0cc7b38d4396b82c74c/983081e825d8b355-ca/s2048x3072/2130af3bc26b26f2c048e90065ee9fcb9299858b.pnj width="600" align="right"> 
