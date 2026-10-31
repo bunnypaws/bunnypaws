@@ -10,9 +10,14 @@
 
 
 
-<img src=https://64.media.tumblr.com/fb39d7acf0b263f9c0b74b7363c33d09/983081e825d8b355-6d/s1280x1920/409a9c5fb5ea25f5c0110d4a8612a6695cd6900a.pnj width="190" align="center"> 
+<img src=https://magma.com/shared/aaFq5mvaj9JyrR3qm2SPFj width="200" align="center"> 
 
   </br>
+
+<img src=https://magma.com/shared/41N2RGrmbZT6l28Bf2m5gz width="300" align="center"> 
+
+  </br>
+
 
 ㅤ<table border="0" align="center" style="margin-bottom 20" style="margin-right 2">
     <tr align="left"></tr>
