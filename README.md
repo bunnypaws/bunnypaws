@@ -24,9 +24,9 @@
 ㅤ<table border="0" align="left" style="margin-bottom 20" style="margin-right 2">
     <tr align="left"></tr>
       <th>
-     papyrus　killer　kimmu 　 　 　she　he　they
+     lady killer　kimmu 　 　 　she　he　they
         <br>
-    　　  infp + so4　　autistic + suspected osdd 1b
+    　　  infp + so4　　i block freely + basic dni
         ㅤ<br>
       </th>
     </table>
@@ -34,18 +34,6 @@
      </br>
 
 
-
-ㅤ<table border="0" align="left" style="margin-bottom 20" style="margin-right 2">
-    <tr align="left"></tr>
-      <th>
-     block　freely 　 　 　basic dni
-        <br>
-           i　have　haphephobia　
-        ㅤ<br>
-      </th>
-    </table>
-<span style="clear: both" />
-     </br>
 
 <img src=https://magma.com/shared/41N2RGrmbZT6l28Bf2m5gz width="390" align="left"> 
 
