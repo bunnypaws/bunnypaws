@@ -1,13 +1,15 @@
 
 
-
 <div align="center">
 
 
 
  ✦    
+
+ <img src=https://magma.com/shared/0rU3auZ17fXlsiyLI7SW_D width="190" align="center"> 
+
+  </br>
  
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Playfair&weight=900&size=25&duration=4980&pause=1000&color=ff3104&width=435&lines=Won't+you+be+my+porm+queen+?)](https://git.io/typing-svg)
 
  <table>
       <th>
@@ -33,8 +35,17 @@
      </br>
 
 
+<img src=https://magma.com/shared/41N2RGrmbZT6l28Bf2m5gz width="390" align="center"> 
 
-<img src=https://magma.com/shared/41N2RGrmbZT6l28Bf2m5gz width="390" align="left"> 
 
-  </br>
+ㅤ<table border="0" align="right" style="margin-bottom 20" style="margin-right 2">
+    <tr align="left"></tr>
+      <th>
+    　　  infp + so4　　i block freely + basic dni
+        ㅤ<br>
+      </th>
+    </table>
+<span style="clear: both" />
+     </br>
+
 
