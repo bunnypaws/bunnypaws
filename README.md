@@ -43,14 +43,3 @@ ${\color{#fff8f4}\text{ fellpapyrus }}$ ${\color{#c21c1c}\text{ graphic }}$  ${\
      </br>
 
 
-ㅤ<table border="0" align="right" style="margin-bottom 20" style="margin-right 2">
-    <tr align="right"></tr>
-      <th>
-     block　freely 　 　 　basic dni
-        <br>
-           i　have　haphephobia　
-        ㅤ<br>
-      </th>
-    </table>
-<span style="clear: both" />
-     </br>
