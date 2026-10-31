@@ -6,10 +6,7 @@
 
  ✦    
  
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Playfair&weight=900&size=25&duration=4980&pause=1000&color=c21c1c&width=435&lines=despite+everything+,+it's+still+you+.+right+?)](https://git.io/typing-svg)
-
-
-${\color{#fff8f4}\text{ fellpapyrus }}$ ${\color{#c21c1c}\text{ graphic }}$  ${\color{#aaaca7}\text{ by }}$  ${\textsf{\color{#7a1c1c} @skeletonenthusiasts on tumblr}}$ 
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Playfair&weight=900&size=25&duration=4980&pause=1000&color=ff3104&width=435&lines=Your love has got me going like you couldn't imagine)(https://git.io/typing-svg)
 
 
 
@@ -42,4 +39,6 @@ ${\color{#fff8f4}\text{ fellpapyrus }}$ ${\color{#c21c1c}\text{ graphic }}$  ${\
 <span style="clear: both" />
      </br>
 
+<img src=https://64.media.tumblr.com/84b9bca53c688e0df07e81c2d70c9901/f713373ffea67c24-7d/s1280x1920/29fe12611c4fac4ba8fd2b850e47816339bafc65.gifv width="150" align="center"> 
 
+ </br>
