@@ -6,7 +6,7 @@
 
  ✦    
  
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Playfair&weight=900&size=25&duration=5600&pause=1000&color=ff3104&width=435&lines=Won't+you+be+my+porm+queen+?)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Playfair&weight=900&size=25&duration=4980&pause=1000&color=ff3104&width=435&lines=Won't+you+be+my+porm+queen+?)](https://git.io/typing-svg)
 
 
 
