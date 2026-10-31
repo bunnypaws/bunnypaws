@@ -16,7 +16,7 @@
 
   </br>
 
-<img src=https://magma.com/shared/41N2RGrmbZT6l28Bf2m5gz width="400" align="center"> 
+<img src=https://magma.com/shared/41N2RGrmbZT6l28Bf2m5gz width="390" align="center"> 
 
   </br>
 
@@ -24,9 +24,9 @@
 ㅤ<table border="0" align="left" style="margin-bottom 20" style="margin-right 2">
     <tr align="left"></tr>
       <th>
-     papyrus　killer　kimmu 　 　 　they　hym　he
+     papyrus　killer　kimmu 　 　 　she　he　they
         <br>
-    　　  infp so4　　autistic + suspected osdd 1b
+    　　  infp + so4　　autistic + suspected osdd 1b
         ㅤ<br>
       </th>
     </table>
@@ -47,5 +47,7 @@
 <span style="clear: both" />
      </br>
 
+<img src=https://magma.com/shared/41N2RGrmbZT6l28Bf2m5gz width="390" align="left"> 
 
+  </br>
 
