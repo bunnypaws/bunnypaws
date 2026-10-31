@@ -27,7 +27,7 @@
 ㅤ<table border="0" align="left" style="margin-bottom 20" style="margin-right 2">
     <tr align="left"></tr>
       <th>
-    　　  infp + so4　　i block freely + basic dni
+    　　  i love pizza too much　　smg4 special interest
         ㅤ<br>
       </th>
     </table>
