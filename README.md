@@ -17,7 +17,7 @@ ${\color{#fff8f4}\text{ fellpapyrus }}$ ${\color{#c21c1c}\text{ graphic }}$  ${\
 
   </br>
 
-ㅤ<table border="0" align="left" style="margin-bottom 20" style="margin-right 2">
+ㅤ<table border="0" align="center" style="margin-bottom 20" style="margin-right 2">
     <tr align="left"></tr>
       <th>
      papyrus　killer　kimmu 　 　 　they　hym　he
