@@ -41,21 +41,12 @@
 ㅤ<table border="0" align="right" style="margin-bottom 20" style="margin-right 2">
     <tr align="left"></tr>
       <th>
-    　　  i love pizza too much　　smg4 special interest
+    　　  autistic + undiagnosed osdd 1b　　smg4 special interest
         ㅤ<br>
       </th>
     </table>
 <span style="clear: both" />
      </br>
 
-<img src=https://magma.com/shared/41N2RGrmbZT6l28Bf2m5gz width="390" align="center"> 
+<img src=https://magma.com/shared/41N2RGrmbZT6l28Bf2m5gz width="390" align="left"> 
 
-ㅤ<table border="0" align="left" style="margin-bottom 20" style="margin-right 2">
-    <tr align="left"></tr>
-      <th>
-    　　  autistic + undiagnosed osdd 1b　　text
-        ㅤ<br>
-      </th>
-    </table>
-<span style="clear: both" />
-     </br>
